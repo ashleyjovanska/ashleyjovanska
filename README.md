@@ -9,7 +9,7 @@ Outside of my college hours, I self-learn Cyber Security and Programming.
 I find great satisfaction in organized work and problem-solving, and I welcome challenges as opportunities for growth and development. 
 
 
-- 📫 How to reach me **ashleyjovanska11@mail.com**
+- 📫 How to reach me **ashleyjovanska11@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
